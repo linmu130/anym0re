@@ -1,3 +1,2 @@
 # anym0re
-study and grow up
-Welcome to my space.
+Welcome to my space,Let's study and grow up together.
